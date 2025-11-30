@@ -6,17 +6,17 @@ Hi, my name is Andrew and I teach balfolk dances sometimes.
 
 ## Where I've taught before
 
-- Skint, 2016, Ashover: Communication in Dance
+- [Skint](https://www.skintdance.org.uk/), 2016, Ashover: Communication in Dance
 - IVFDF, February 2017, Cambridge: Connection in Partner Dance
-- Skint, 2022, Ashover: Three Ways to Waltz
+- [Skint](https://www.skintdance.org.uk/), 2022, Ashover: Three Ways to Waltz
 - IVFDF, [February 2023](https://ivfdf2023.wordpress.com/workshops/#workshop-descriptions), Exeter:
   Four Dimensions of Balfolk Variations
-- Skint, November 2023, Ashover: Four Dimensions of Balfolk Variations
+- [Skint](https://www.skintdance.org.uk/), November 2023, Ashover: Four Dimensions of Balfolk Variations
 - IVFDF, [February 2024](https://ivfdf2024.org.uk/workshops.html#waltzing-from-1-to-11), York:
   Waltzing from 1 to 11
-- Folk Marathon, December 2024, Vienna: Four Dimensions of Balfolk Variatons
+- Folk Marathon, [December 2024](https://vienna.folkmarathon.org/node/1348), Vienna: Four Dimensions of Balfolk Variatons
 - [May 2025](https://qwandor.dancecloud.com/dance/37589), London: Waltzing from 1 to 11
-- Bal Étoile, London: Various shorter workshops
+- [Bal Étoile](https://londonbalfolk.org.uk/), London: Various shorter workshops
 
 ## Workshops available
 
