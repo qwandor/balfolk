@@ -1,5 +1,3 @@
-# Andrew Walbran, balfolk teaching
-
 Hi, my name is Andrew and I teach balfolk dances sometimes.
 
 [Upcoming workshops](https://qwandor.dancecloud.com/)
