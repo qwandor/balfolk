@@ -14,7 +14,7 @@ Hi, my name is Andrew and I teach balfolk dances sometimes.
   Waltzing from 1 to 11
 - Folk Marathon, [December 2024](https://vienna.folkmarathon.org/node/1348), Vienna: Four Dimensions of Balfolk Variatons
 - [May 2025](https://qwandor.dancecloud.com/dance/37589), London: Waltzing from 1 to 11
-- [Bal Étoile](https://londonbalfolk.org.uk/), London: Various shorter workshops
+- [Bal Étoile](https://londonbalfolk.org.uk/), 2023–2025, London: Various shorter workshops
 
 ## Workshops available
 
