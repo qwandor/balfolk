@@ -4,7 +4,7 @@ Hi, my name is Andrew and I teach balfolk dances sometimes.
 
 ## Where I've taught before
 
-- [Skint](https://www.skintdance.org.uk/), 2016, Ashover: Communication in Dance
+- [Skint](https://www.skintdance.org.uk/), 2016, Ashover: Connection in Partner Dance
 - IVFDF, February 2017, Cambridge: Connection in Partner Dance
 - [Skint](https://www.skintdance.org.uk/), 2022, Ashover: Three Ways to Waltz
 - IVFDF, [February 2023](https://ivfdf2023.wordpress.com/workshops/#workshop-descriptions), Exeter:
