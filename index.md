@@ -1,4 +1,9 @@
-Hi, my name is Andrew and I teach balfolk dances sometimes.
+Hi, my name is Andrew and I teach balfolk dances sometimes. I've been dancing balfolk since 2013,
+and other partner dances since 2010.
+
+I like a variety of dances, but I'm especially interested in improvised social partner dances, and I
+like to steal elements of other dances to mix in with my balfolk. I also like to find common
+elements and techniques that can be applied across dance styles.
 
 [Upcoming workshops](https://qwandor.dancecloud.com/)
 
