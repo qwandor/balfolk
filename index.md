@@ -11,6 +11,7 @@ elements and techniques that can be applied across dance styles.
 
 - [Skint](https://www.skintdance.org.uk/), 2016, Ashover: Connection in Partner Dance
 - IVFDF, February 2017, Cambridge: Connection in Partner Dance
+- [Balfolks](https://balfolks-krakow.pl/), June 2018, Kraków: Connection in Partner Dance
 - [Skint](https://www.skintdance.org.uk/), 2022, Ashover: Three Ways to Waltz
 - IVFDF, [February 2023](https://ivfdf2023.wordpress.com/workshops/#workshop-descriptions), Exeter:
   Four Dimensions of Balfolk Variations
