@@ -23,6 +23,7 @@ elements and techniques that can be applied across dance styles.
 - [Bal Étoile](https://londonbalfolk.org.uk/), 2023–2025, London: Various shorter workshops
 - South East London Balfolk, December 2025, London: Rondeau in couple
 - [Balfolk Cambridge](https://balfolkcambridge.org/), January 2026, Cambridge: Connection in Partner Dance
+- [Balfolk Golden Bay](https://www.facebook.com/groups/1780628706190852), February 2026, Takaka: Connection and Improvisation in Mazurka
 
 ## Workshops available
 
