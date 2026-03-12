@@ -20,7 +20,7 @@ elements and techniques that can be applied across dance styles.
   Waltzing from 1 to 11
 - Folk Marathon, [December 2024](https://vienna.folkmarathon.org/node/1348), Vienna: Four Dimensions of Balfolk Variatons
 - [May 2025](https://qwandor.dancecloud.com/dance/37589), London: Waltzing from 1 to 11
-- [Bal Étoile](https://londonbalfolk.org.uk/), 2023–2025, London: Various shorter workshops
+- [Bal Étoile](https://londonbalfolk.org.uk/), 2023–2026, London: Various shorter workshops
 - South East London Balfolk, December 2025, London: Rondeau in couple
 - [Balfolk Cambridge](https://balfolkcambridge.org/), January 2026, Cambridge: Connection in Partner Dance
 - [Balfolk Golden Bay](https://www.facebook.com/groups/1780628706190852), February 2026, Takaka: Connection and Improvisation in Mazurka
@@ -38,7 +38,7 @@ styles. Some can also be adapted to be more beginner-friendly.
 #### Connection and partnering
 
 This workshop will explore a series of exercises to help you be aware of your own body, connect with
-the music and a partner, and lead and follow a variety of movement. We’ll then apply what you have
+the music and a partner, and lead and follow a variety of movement. We'll then apply what you have
 learnt to some of the partnered dances common in balfolk such as schottische and mazurka.
 
 Some previous dance experience is helpful but not required, and no familiarity with balfolk is
@@ -49,7 +49,7 @@ beginners to experts, either way there'll be something for you to get out of it.
 
 #### Three Ways to Waltz
 
-What is a waltz? We’ll look at the differences between three different styles of waltz (American
+What is a waltz? We'll look at the differences between three different styles of waltz (American
 folk waltz / rotary waltz, balfolk waltz and Swedish waltz), and how differences in the music lead
 to difference in pulse, frame, movement and connection.
 
@@ -58,11 +58,11 @@ learn more about different ways to waltz.
 
 #### Waltzing from 1 to 11
 
-An introduction to balfolk waltzes, regular and irregular. We’ll start by getting the basics of a
+An introduction to balfolk waltzes, regular and irregular. We'll start by getting the basics of a
 regular 3-time waltz, talking about how a typical balfolk style of waltz differs from other kinds
 of waltz, and then see how far we can get with irregular waltzes in 5, 8 or even 11.
 
-Wear smooth-soled shoes that you can turn easily in. You don’t need to know how to waltz to take
+Wear smooth-soled shoes that you can turn easily in. You don't need to know how to waltz to take
 this workshop, but familiarity with connection in some kind of partner dance is helpful.
 
 #### Four Dimensions of Balfolk Variations
@@ -81,26 +81,34 @@ useful for those who have come across them before to improve their technique.
 
 #### Bourrée 2t technique and variations
 
-We’ll talk about the typical pulse and rhythm of a 2-time bourrée, the basic movement and how to
-change the steps to give more energy and drive to the dance. We’ll use eye contact with our partner
+We'll talk about the typical pulse and rhythm of a 2-time bourrée, the basic movement and how to
+change the steps to give more energy and drive to the dance. We'll use eye contact with our partner
 to match energy, pulse and size of our steps, and then explore some simple variations to make the
 dance more interesting.
 
 #### Schottische
 
-We’ll learn the basic steps of a balfolk schottische along with some tips for leading and following.
-We’ll then learn some common figures to add variety to the dance.
+We'll learn the basic steps of a balfolk schottische along with some tips for leading and following.
+We'll then learn some common figures to add variety to the dance.
+
+#### Mazurka
+
+Mazurka is one of the most popular balfolk partner dances, and provides some of the most scope for
+improvisation and musicality. For this to work well we need to have a good connection to our partner.
+In this workshop we'll start by feeling the rhythm of the music, then look at how we can lead and
+follow from simple weight changes to steps and direction, and then put it all together to improvise
+different rhythms for a mazurka and communicate them to our partner.
 
 #### Rondeau in couple
 
-Rondeau in couple is danced not just with a partner but with the whole room of people. We’ll
+Rondeau in couple is danced not just with a partner but with the whole room of people. We'll
 introduce the basic rondeau step, with its characteristic pulse and drive, and then find out how to
-connect with the rest of the room. If times permits we’ll also cover a few common variations.
+connect with the rest of the room. If times permits we'll also cover a few common variations.
 
 #### Rond de St Vincent
 
-We’ll learn the simple basic step of this dance and see how it fits together with the characteristic
-arm movements. We’ll make sure we have a good comfortable and relaxed connection, and see how much
+We'll learn the simple basic step of this dance and see how it fits together with the characteristic
+arm movements. We'll make sure we have a good comfortable and relaxed connection, and see how much
 fun it can be when we dance with energy and speed.
 
 #### Rond de Landela
